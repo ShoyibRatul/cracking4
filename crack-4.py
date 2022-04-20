@@ -1,3 +1,3 @@
-print("Script Sedang Pembaharuan!")
-print("Silahkan Tunggu Beberapa Saat Lagi Ngav")
-print("\x1b[1;96m😂Happy Ending😂")
+print("\x1b[1;91Script Ini Sedang Diperbarui Ngav")
+print("\x1b[1;93Silahkan Tunggu Beberapa Saat Lagi")
+print("\x1b[1;92m😂Happy Ending😂")
