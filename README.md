@@ -26,7 +26,7 @@ $ cd cracking4
 $ python crack-4.py
 ```
 # Cara Update
-```php
+```bash
 $ cd
 $ cd cracking4
 $ git pull
