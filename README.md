@@ -7,7 +7,7 @@ Happy Ending muweheeh😅
 
 ## PAKE DOANG NGGA FOLLOW, KONTOL LOO
 🌟 LOGO
-![deskripsi gambar](https://i.ibb.co/wMD8pVH/Screenshot-2022-04-13-12-28-04-850-com-termux.png)
+![deskripsi gambar](https://i.ibb.co/VDTzgQB/Screenshot-2022-04-21-08-13-52-030-com-termux.png)
 🌟 RESULTS
 ![deskripsi gambar](https://i.ibb.co/QrsjvJN/Screenshot-2022-04-13-06-54-04-785-com-termux.png)
 🐷 Gambar Hanya Pemanis, Selebihnya Cobain Sendiri Ngab🐷
