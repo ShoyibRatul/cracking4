@@ -1,6 +1,7 @@
 
 ### WANING IJO IJO
 Memex : Tools Ini masih tahap perkembangan jadi Tungu aja update Selanjutnya🙏
+Btw udh versi 2 ngav😍😍 dan hasilnya juga bukan ijo² lagi🤣🤣__coba aja ngga percaya🤔
 
 Happy Ending muweheeh😅
 
