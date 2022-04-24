@@ -1,15 +1,15 @@
 
 ### WANING IJO IJO
 Memex : Tools Ini masih tahap perkembangan jadi Tungu aja update Selanjutnya🙏
-Btw udh versi 2 ngav😍😍 dan hasilnya juga bukan ijo² lagi🤣🤣__coba aja ngga percaya🤔
+Btw udh versi 3 ngav😍😍🤣🤣__coba aja ngga percaya🤔
 
 Happy Ending muweheeh😅
 
 ## PAKE DOANG NGGA FOLLOW, KONTOL LOO
 🌟 LOGO
-![deskripsi gambar](https://i.ibb.co/VDTzgQB/Screenshot-2022-04-21-08-13-52-030-com-termux.png)
+![deskripsi gambar](https://i.ibb.co/SvHV2T9/Screenshot-2022-04-25-04-26-33-668-com-termux.png)
 🌟 RESULTS
-![deskripsi gambar](https://i.ibb.co/QrsjvJN/Screenshot-2022-04-13-06-54-04-785-com-termux.png)
+![deskripsi gambar](https://i.ibb.co/QpTByH1/Screenshot-2022-04-25-02-37-04-384-com-termux.png)
 🐷 Gambar Hanya Pemanis, Selebihnya Cobain Sendiri Ngab🐷
 ## Instalation
 Download apk Termuxnya disini biar ngga eror🌟
